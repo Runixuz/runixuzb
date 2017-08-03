@@ -1,0 +1,2 @@
+# runixuzb
+dasturlash asoslari
